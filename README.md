@@ -1,2 +1,1 @@
-"# the-forlorn" 
-"# the-forlorn" 
+To put it simply, the mod will be about a new dimension called the Forlorn Ocean. It's a forest with trees stretching up very high (possibly buildheight with leaves covering the sky). It contains many interesting creatures and locales. You might be asking, Where in the world did you get this idea? https://iguanamouth.tumblr.com/post/102949571952/radglawr-methsnake-imagine-if-the-oceans
